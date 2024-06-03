@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @ABIDEX08
-- 👀 I’m interested in community moderations and management
+- 👀 I’m interested in community moderations and managementS
 - 🌱 I’m currently learning c programming
 - 📫 How to reach me ...x @Abi__dex,Tg @ABIDEX2102
